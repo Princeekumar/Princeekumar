@@ -1,5 +1,5 @@
 💫 Hi 👋, I'm Prince Kumar
-A passionate Business/Data Analyst |
+a passionate Business/Data Analyst |
 
 Email Me 👉 ✉️ prince11051999@gmail.com For Collaboration/Project or Anything Else. 😊😊
 
